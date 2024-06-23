@@ -1,5 +1,6 @@
 # Boundaries
 
+```
 _Ooh, bop_
 
 [Chorus]
@@ -62,3 +63,4 @@ then i'll recollect it
 if it feels too set it
 can get jittered a bit
 Better not to fret it
+```
