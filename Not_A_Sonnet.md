@@ -5,7 +5,7 @@ I'm inhabited by the world that we inhabit
 together; a universe held here by force of habit
 and hope eternal that i'll rediscover you in it.
 Iterable or absolute, so simple there's nothing to it;
-your shape in space appeared there before i knew it.
+your shape in space spring there before i knew it.
 
 To turn back would take another eternity, to undo it
 Would consume another universe with wrong, it
